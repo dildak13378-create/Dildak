@@ -1,0 +1,2 @@
+# Dildak
+Ya gay
